@@ -10,3 +10,21 @@ Meu nome é Priscilla Koch Wagner!
 - 🐶 Tenho um projeto voluntário de adoção de cães e gatos resgatados!
 - 😄 Meus pronomes: ela/dela
 
+
+### Onde já falei por aí:
+
+Em breve!
+
+### Artigos publicados:
+
+Em breve!
+
+### Eventos que organizei:
+
+Em breve!
+
+### Onde você pode me encontrar:
+
+[<img src="https://cdn4.iconfinder.com/data/icons/logos-and-brands/512/189_Kaggle_logo_logos-512.png" width="15"/> priscillakw](https://www.kaggle.com/priscillakw)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[<img src="https://cdn-icons-png.flaticon.com/256/174/174857.png" width="15"/> priscilla-wagner](https://www.linkedin.com/in/priscilla-wagner/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/7/7e/Gmail_icon_%282020%29.svg/2560px-Gmail_icon_%282020%29.svg.png" width="15"/> priscillak.wagner@gmail.com
